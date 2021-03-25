@@ -4,6 +4,8 @@
 - 💞️ I’m looking to collaborate on  nothing
 - ♟️ In free time I play chess
 - 📫 How to reach me 'you already f0und me' , but I am also available on different platforms 
+- you can contact me h4x0rl4dy@gmail.com
+
 
 <!---
 h4x0rl4dy/h4x0rl4dy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
