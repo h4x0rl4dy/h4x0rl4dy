@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on  nothing
 - ♟️ In free time I play chess
 - 📫 How to reach me 'you already f0und me' , but I am also available on different platforms 
-- you can contact me h4x0rl4dy@gmail.com
+
 
 
 <!---
